@@ -4,4 +4,4 @@
 - I'm eager to meet new people in class 
 - Well, I'm also excited to get an 'A' in class
 
-![Image](https://www.shutterstock.com/image-vector/smiley-vector-happy-face-408014413)
+[Smiley](https://www.shutterstock.com/image-vector/smiley-vector-happy-face-408014413)
